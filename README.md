@@ -1,1 +1,2 @@
-# failed-to-abandon-the-villain
+# Failed to Abandon the Villain
+Un jour, mon père m’a donné un garçon esclave. Il a dit qu’il l’avait sauvé du champ de bataille grâce à sa bonne mine. « Il a un sceau gravé sur son coeur. Tant que tu as cette perle, il ne pourra pas te désobéir. Donc tu peux lui ordonner de faire n’importe quoi. » Le garçon avait l’air plutôt sinistre après avoir entendu ce que je lui ordonnais. Ah, est-ce que je le traitais trop comme un chien ? Alors que mon père pressait la perle, le garçon s’est agenouillé à mes pieds. « Maître » Ses yeux rouges ont clignoté, illuminant son regard sinistre tout en souriant follement. Pourquoi est-il comme ça avec moi ?! J’ai fait de mon mieux pour le traiter correctement !
